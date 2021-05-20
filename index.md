@@ -160,10 +160,15 @@ In the case of Prizes in the form of tickets, you will be bound by and comply wi
 12.3	Our decision or that of the Prize Provider’s judges is final and conclusive in all circumstances and no correspondence will be entered into. The judges for each individual competition will be specified in the terms of the conditions for that specific campaign/competition. Similarly the method for announcement of any winners will be specified in the terms of entry for that competition.
 
 13.	GENERAL
+
 13.1	This Agreement shall be governed and construed in accordance with the laws of England and Wales and you and we submit to the exclusive jurisdiction of the Courts of England. 
+
 13.2	This Agreement represents the entire agreement between you and us relating to the Competition or the Prize and supersede all prior representations, agreements, negotiations or understandings (whether oral or in writing).
+
 13.3	Failure to enforce any term does not constitute a waiver of that term.
+
 13.4	If any part of this Agreement of use is found to be unenforceable, it will be amended to the minimum extent necessary to make it enforceable and the remainder of the provisions will remain in full force and effect.
+
 13.5	This Agreement is not intended to nor shall create any rights, entitlements, claims or benefits enforceable by any person that is not a party to them.  Accordingly no person shall derive any benefit or have any right, entitlement or claim in relation to this Agreement by virtue of the Contracts (Rights of Third Parties) Act 1999.
 
 For all queries or the name(s) of the verified winner(s) (which will only be available one month from the draw date) please contact:  AETN UK, Competition Queries, Legal & Business Affairs Department, 1 Queen Caroline Street, London, W6 9YN.
