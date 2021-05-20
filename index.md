@@ -7,11 +7,13 @@
 
 1.	We are promoting the “River Hunters S2” and The HISTORY® Channel Competition (the Competition).
 
+
 2.	There is 1 Prize. The Prize will consist of a bundle of various prizes which includes;
 I.	1 x PlayStation 5 (please note this console is only compatible with British sockets);
 II.	1 x Copy of “Subnautica: Below Zero” for PlayStation 5;
 III.	1 x History® Channel Hoodie. 
 For the avoidance of doubt, the various Prizes within the bundle may be shipped separately and the Prize Provider will not be held accountable for any adverse delay due to reasons outside of their control.
+
 
 3.	To enter the Competition, you must subscribe to the History® Benelux YouTube Channel at https://www.youtube.com/channel/UCy2nFIhmaq5G66Y0BsPU42Q and answer the following question by commenting on the YouTube Channel page under the first episode of River Hunters- “River Hunters seizoen 2, aflevering,1- The Battle of Killiecrankie”: “Which river would you most like to explore and why?”  The YouTube usernames of all those who submitted valid entries will then be submitted into a random name generator, where 1 Prize Winner will be chosen. 
 
