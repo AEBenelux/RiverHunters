@@ -3,38 +3,25 @@
 ### “River Hunters S2” and the History® Channel Competition
 ### Rules and Terms and Conditions
 
+
 ## COMPETITION RULES
 
 1.	We are promoting the “River Hunters S2” and The HISTORY® Channel Competition (the Competition).
-
-
 2.	There is 1 Prize. The Prize will consist of a bundle of various prizes which includes;
 I.	1 x PlayStation 5 (please note this console is only compatible with British sockets);
 II.	1 x Copy of “Subnautica: Below Zero” for PlayStation 5;
 III.	1 x History® Channel Hoodie. 
-For the avoidance of doubt, the various Prizes within the bundle may be shipped separately and the Prize Provider will not be held accountable for any adverse delay due to reasons outside of their control.
-
-
+For the avoidance of doubt, the various Prizes within the bundle may be shipped separately and the Prize Provider will not be held accountable for any adverse delay due to reasons outside of their control. 
 3.	To enter the Competition, you must subscribe to the History® Benelux YouTube Channel at https://www.youtube.com/channel/UCy2nFIhmaq5G66Y0BsPU42Q and answer the following question by commenting on the YouTube Channel page under the first episode of River Hunters- “River Hunters seizoen 2, aflevering,1- The Battle of Killiecrankie”: “Which river would you most like to explore and why?”  The YouTube usernames of all those who submitted valid entries will then be submitted into a random name generator, where 1 Prize Winner will be chosen. 
-
 4.	The Competition will run between 24 May 2021 and 21 June 2021.  Entries close at midnight on 21 June 2021. Any entries received after midnight on 21 June 2021 will not be entered.  
-
 5.	Please note that the dates set out in these Terms and Conditions may be subject to change at any time.  In addition, we reserve the right, in our reasonable discretion, to add to, amend, vary or waive any of the other Terms and Conditions on reasonable notice.
-
 6.	Entry is limited to one per person. 
-
 7.	This Competition is open to all Dutch and Belgium residents only aged 18 or over on or before 24 May 2021, and excluding employees of A+E Networks UK, Sky Limited or anyone connected with the administration of the Competition.
-
 8.	The draw will take place on 22 June 2021 at 14.00pm (GMT).  Before the draw can take place, all entries will be collated (“the Collated Entries”).  From the Collated Entries, only those with a valid answer will be put forward for selection to win a Prize.  
-
-9.	The 1 Prize winner will be chosen at random from all of the valid entries and will be notified of this via their page’s ‘Discussion’ tab on YouTube on 22 June 2021 (“the Notification Date”). Upon receiving this message, the Prize winner will need to send an email to benelux@aenetworks.co.uk to confirm their details and eligibility. Once we have verified the winner’s eligibility (“Confirmation Date”), we will confirm all arrangements connected to the delivery and enjoyment of their Prize. 
-
+9.	The 1 Prize winner will be chosen at random from all of the valid entries and will be notified of this via their page’s ‘Discussion’ tab on YouTube on 22 June 2021 (“the Notification Date”). Upon receiving this message, the Prize winner will need to send an email to benelux@aenetworks.co.uk to confirm their details and eligibility. Once we have verified the winner’s eligibility (“Confirmation Date”), we will confirm all arrangements connected to the delivery and enjoyment of their Prize.  
 10.	Please allow 6 months for delivery of Prize(s) from the Confirmation Date.
-
 11.	We will process your data in accordance with clauses 8.6 and 8.7 of the Competition Terms below and our Privacy Policy.
-
 12.	Promoter: AETN UK, 1 Queen Caroline Street, Hammersmith, London, W6 9YN.  Although this Competition is run by AETN UK, the terms and conditions of any third party supplier (“the Prize Providers”) also apply and must be accepted and complied with by the winner(s).   These include but are not limited to compliance with any age restrictions and/or health and safety regulations which apply whilst that winner enjoys any element of the Prize and/or are taking part in any other promotional activity.
-
 13.	Prize Provider: AETN UK 
  
 AETN UK
@@ -160,28 +147,15 @@ In the case of Prizes in the form of tickets, you will be bound by and comply wi
 12.3	Our decision or that of the Prize Provider’s judges is final and conclusive in all circumstances and no correspondence will be entered into. The judges for each individual competition will be specified in the terms of the conditions for that specific campaign/competition. Similarly the method for announcement of any winners will be specified in the terms of entry for that competition.
 
 13.	GENERAL
-
-
 13.1	This Agreement shall be governed and construed in accordance with the laws of England and Wales and you and we submit to the exclusive jurisdiction of the Courts of England. 
-
-
 13.2	This Agreement represents the entire agreement between you and us relating to the Competition or the Prize and supersede all prior representations, agreements, negotiations or understandings (whether oral or in writing).
-
-
 13.3	Failure to enforce any term does not constitute a waiver of that term.
-
-
 13.4	If any part of this Agreement of use is found to be unenforceable, it will be amended to the minimum extent necessary to make it enforceable and the remainder of the provisions will remain in full force and effect.
-
-
 13.5	This Agreement is not intended to nor shall create any rights, entitlements, claims or benefits enforceable by any person that is not a party to them.  Accordingly no person shall derive any benefit or have any right, entitlement or claim in relation to this Agreement by virtue of the Contracts (Rights of Third Parties) Act 1999.
-
 
 For all queries or the name(s) of the verified winner(s) (which will only be available one month from the draw date) please contact:  AETN UK, Competition Queries, Legal & Business Affairs Department, 1 Queen Caroline Street, London, W6 9YN.
 AETN UK Company Number 03105704
 
-
-Updated 20/05/2021
+Updated 21/05/2018
 v.1.0
-
 
