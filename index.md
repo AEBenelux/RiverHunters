@@ -24,11 +24,12 @@ For the avoidance of doubt, the various Prizes within the bundle may be shipped 
 12.	Promoter: AETN UK, 1 Queen Caroline Street, Hammersmith, London, W6 9YN.  Although this Competition is run by AETN UK, the terms and conditions of any third party supplier (“the Prize Providers”) also apply and must be accepted and complied with by the winner(s).   These include but are not limited to compliance with any age restrictions and/or health and safety regulations which apply whilst that winner enjoys any element of the Prize and/or are taking part in any other promotional activity.
 13.	Prize Provider: AETN UK 
  
-AETN UK
-“River Hunters S2” and The HISTORY® Channel Competition
-Rules and Terms and Conditions 
+## AETN UK
 
-COMPETITION TERMS AND CONDITIONS (UK) 
+### “River Hunters S2” and The HISTORY® Channel Competition
+### Rules and Terms and Conditions
+
+## COMPETITION TERMS AND CONDITIONS (UK)
 SUMMARY
 •	By entering the Competition you confirm that you have understood and accept the Rules set out above and these Competition Terms and Conditions.
 • 	This constitutes a legal agreement between us and you.  Please read it carefully.
